@@ -1,0 +1,1 @@
+# 6-sinif-sosyal-bilgiler-soru-bankasi-32
